@@ -1,4 +1,4 @@
-# EPIC PROFILEEEE
+# ZAHRAJTE SI MOJI HRU!!! RAHHHH
 
 <a href="https://next.ossinsight.io/widgets/official/analyze-user-contribution-time-distribution?user_id=136122184&period=all_times" target="_blank" style="display: block" align="center">
   <picture>
